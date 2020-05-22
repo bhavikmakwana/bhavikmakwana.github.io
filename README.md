@@ -1,2 +1,0 @@
-# bhavikmakwana.github.io
-App
